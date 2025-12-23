@@ -1,18 +1,40 @@
 ---
 layout: post
-title: Flake it till you make it
-subtitle: Excerpt from Soulshaping by Jeff Brown
-cover-img: /assets/img/path.jpg
-thumbnail-img: /assets/img/thumb.png
+title: Avo and the Office of Quiet Things
+subtitle: Growing slowly, learning kindly
+cover-img: /assets/img/avobg1.jfif
+thumbnail-img: /assets/img/bad avo.gif
 share-img: /assets/img/path.jpg
-tags: [books, test]
-author: Sharon Smith and Barry Simpson
+tags: [avocado, growth]
+author: BAC
 ---
 
-Under what circumstances should we step off a path? When is it essential that we finish what we start? If I bought a bag of peanuts and had an allergic reaction, no one would fault me if I threw it out. If I ended a relationship with a woman who hit me, no one would say that I had a commitment problem. But if I walk away from a seemingly secure route because my soul has other ideas, I am a flake?
+One gentle spring, a small avocado named Avo rolled into a curious place known as the Supply Grove—a room where lists whispered, papers rustled like leaves, and important things were quietly decided.
 
-The truth is that no one else can definitively know the path we are here to walk. It’s tempting to listen—many of us long for the omnipotent other—but unless they are genuine psychic intuitives, they can’t know. All others can know is their own truth, and if they’ve actually done the work to excavate it, they will have the good sense to know that they cannot genuinely know anyone else’s. Only soul knows the path it is here to walk. Since you are the only one living in your temple, only you can know its scriptures and interpretive structure.
+Avo was new, and it showed.
 
-At the heart of the struggle are two very different ideas of success—survival-driven and soul-driven. For survivalists, success is security, pragmatism, power over others. Success is the absence of material suffering, the nourishing of the soul be damned. It is an odd and ironic thing that most of the material power in our world often resides in the hands of younger souls. Still working in the egoic and material realms, they love the sensations of power and focus most of their energy on accumulation. Older souls tend not to be as materially driven. They have already played the worldly game in previous lives and they search for more subtle shades of meaning in this one—authentication rather than accumulation. They are often ignored by the culture at large, although they really are the truest warriors.
+She was silent, shy, and unfailingly polite, greeting everyone with a tiny nod and a soft presence. No one quite knew where she came from, only that she had arrived with a notebook, a careful heart, and an air of gentle mystery.
 
-A soulful notion of success rests on the actualization of our innate image. Success is simply the completion of a soul step, however unsightly it may be. We have finished what we started when the lesson is learned. What a fear-based culture calls a wonderful opportunity may be fruitless and misguided for the soul. Staying in a passionless relationship may satisfy our need for comfort, but it may stifle the soul. Becoming a famous lawyer is only worthwhile if the soul demands it. It is an essential failure if you are called to be a monastic this time around. If you need to explore and abandon ten careers in order to stretch your soul toward its innate image, then so be it. Flake it till you make it.
+Rather than speaking much, Avo watched.
+
+From her little spot in the corner of the Supply Grove, she observed how the office forest functioned: how requests drifted in, how approvals wandered across desks, and how timelines grew and looped like patient vines. She studied it all quietly, letting understanding come to her instead of chasing it.
+
+Friendships bloomed slowly. Avo was kind to everyone, but she found comfort among fellow sprouts—others who were also new, learning their way through the Builder’s Meadow, where plans were planted and sturdy things slowly took shape. With them, she felt lighter, less alone.
+
+Back in the Supply Grove, Avo often waited.
+
+She sat peacefully in her corner, passing the quiet moments with patience, waiting for a task to find its way to her. When the stillness lingered, she endured it gently, trusting that her time would come.
+
+And when it did, her pit stirred.
+
+Avo worked with care and focus, even if her hands were still learning. She made mistakes—small tangles, misplaced seeds—but she never turned away from them. Instead, she learned, corrected, and tried again, fixing what she could as soon as she noticed.
+
+Little by little, Avo changed.
+
+She grew steadier, more familiar with the rhythm of the Grove. Still quiet, still reserved—but now dependable. When something needed doing, Avo did it thoughtfully, with intention and quiet resolve.
+
+Avo didn’t take over the office with noise or haste.
+
+She simply grew into it.
+
+And in the calm hum of the Supply Grove, everyone learned that even a gentle, overthinking avocado can find her place and flourish 🌿🥑✨
