@@ -9,7 +9,7 @@ tags: [avocado, growth, journey]
 author: BAC
 ---
 
-![](limegreenhydrangea-blip.github.io/avocado/assets/img/image2.png){: .mx-auto.d-block :}
+![](https://github.com/limegreenhydrangea-blip/avocado/blob/master/assets/img/image2.png){: .mx-auto.d-block :}
 
 One gentle spring, a small avocado named Avo rolled into a curious place known as the Supply Grove—a room where lists whispered, papers rustled like leaves, and important things were quietly decided.
 
@@ -19,7 +19,7 @@ She was silent, shy, and unfailingly polite, greeting everyone with a tiny nod a
 
 Rather than speaking much, Avo watched.
 
-![](limegreenhydrangea-blip.github.io/avocado/assets/img/image3.png){: .mx-auto.d-block :}
+![](https://limegreenhydrangea-blip.github.io/avocado/assets/img/image3.png){: .mx-auto.d-block :}
 
 From her little spot in the corner of the Supply Grove, she observed how the office forest functioned: how requests drifted in, how approvals wandered across desks, and how timelines grew and looped like patient vines. She studied it all quietly, letting understanding come to her instead of chasing it.
 
